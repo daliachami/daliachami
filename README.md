@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @daliachami
+- 👀 I’m interested in editing and graphic design
+- 🌱 I’m currently learning at Ryerson University in RTA New Media
